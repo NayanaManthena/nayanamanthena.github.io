@@ -1,1 +1,1 @@
-# nayanamanthena.github.io
+# nayanamanthena.github.io/cv
